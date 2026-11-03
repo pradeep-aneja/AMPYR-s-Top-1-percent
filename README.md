@@ -1,2 +1,2 @@
-# AMPYR-s-Top-1-
+# AMPYR-s-Top-1%-
 Game
